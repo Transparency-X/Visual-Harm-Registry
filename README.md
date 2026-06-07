@@ -1,0 +1,1 @@
+# Visual-Harm-Registry
